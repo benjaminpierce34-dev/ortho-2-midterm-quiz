@@ -1,1 +1,0 @@
-# ortho-2-midterm-quiz
